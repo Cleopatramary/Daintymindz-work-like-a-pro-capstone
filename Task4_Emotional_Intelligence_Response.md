@@ -16,5 +16,5 @@ Kind regards,
 
 **Njoku Gloria Iheoma**
 
-Research Associate
-Daintymindz
+**Research Associate**
+**Daintymindz**
